@@ -6,15 +6,22 @@ Criar um segundo cérebro baseado nos ensinamentos de Benjamin Graham, e sua met
 
 ##Fontes de vídeo:
 https://www.youtube.com/watch?v=NvMqkOxmasI
+
 https://www.youtube.com/watch?v=Gp-cgwMZnfk
+
 https://www.youtube.com/watch?v=9fZ3H1yHb_E
+
 https://www.youtube.com/watch?v=U0drNvc_CsE
+
 https://www.youtube.com/watch?v=npoyc_X5zO8
 
 ##Sites:
 https://www.investing.com/academy/analysis/benjamin-graham-formula-definition/
+
 https://www.investopedia.com/terms/b/benjamin-method.asp
+
 https://en.wikipedia.org/wiki/Benjamin_Graham_formula
+
 https://www.google.com/url?sa=t&source=web&rct=j&opi=89978449&url=https://www.repec.org.br/repec/article/download/3346/1871/11899&ved=2ahUKEwjPhKS20LuSAxU3KbkGHR89AdMQFnoECDUQAQ&usg=AOvVaw2MY2uHnhBVlbFMtaJEQY_P
 
 ##Perguntas e Respostas:
